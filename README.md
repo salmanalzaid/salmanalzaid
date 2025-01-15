@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @salmanalzaid
 - 👀 I’m interested in Tech and Sports
 - 🌱 I’m currently learning Cyber Security and Networks
-- 📫 How to reach me s.alzaid@acg.edu
+- 📫 How to reach me salmankhaledalzeed@gmail.com
   
 
 <!---
